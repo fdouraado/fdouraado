@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Filipi Dourado 😁
+## Bem-vindo(a) ao perfil do Filipi Dourado 🐺
 
  <div>
    <a href="https://github.com/fdouraado">
